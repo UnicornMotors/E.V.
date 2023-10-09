@@ -1,0 +1,1 @@
+- [The Scotch Yoke Engine is Alive! 8 Pistons, 4 Rods](https://youtu.be/bwGQlf0y6zE)
